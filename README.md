@@ -1,2 +1,2 @@
-# Rishikesh Singh - +91 9711425615
+# Rishikesh Singh 
 website developer and SEO Services provider
